@@ -11,10 +11,9 @@ c + h is mega encouraged; int with me! PLEASE
 https://basic-dni.crd.co/
 
 ships - unless you are a close friend of mine
+
 DNI if you ship Billdip/Rickorty/are a darkshipper. end of
 
 
+<img width="101" height="57" alt="lsuuuuurp" src="https://github.com/user-attachments/assets/9a38371e-9602-442f-8355-7f20fa24ceab" />
 
-
-
-<img width="498" height="490" alt="eyeroll" src="https://github.com/user-attachments/assets/b8540c99-1d16-43f3-9216-da8848739463" />
