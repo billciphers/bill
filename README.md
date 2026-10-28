@@ -14,6 +14,8 @@ ships - unless you are a close friend of mine
 
 DNI if you ship Billdip/Rickorty/are a darkshipper. end of
 
+bill cipher "number one/zero fans"/yumeshippers
 
-<img width="101" height="57" alt="lsuuuuurp" src="https://github.com/user-attachments/assets/9a38371e-9602-442f-8355-7f20fa24ceab" />
+
+<img width="494" height="498" alt="heknowslotsofthingd" src="https://github.com/user-attachments/assets/20dc2668-f775-4446-b2f7-b16e210213a0" />
 
